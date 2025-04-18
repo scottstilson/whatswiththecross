@@ -1,6 +1,6 @@
 # What’s with the Cross?
 
-**Q:** To what ends did Jesus subject Himself to crucifixion? And how did His subjection to crucifixion accomplish those ends? (And please give me an answer that, without just coming up with a laundry list of metaphors, takes into account every scrap of biblical text that has an unequivocal connection to Jesus’ death.)
+**Q:** To what ends did Jesus subject Himself to crucifixion? And how did His subjection to crucifixion accomplish those ends? Please give an answer that takes into account every scrap of biblical text with an unequivocal connection to Jesus’ death but that isn’t just just a laundry list of metaphors.
 
 **A:** According to the Scriptures, Jesus subjected Himself to execution to once and for all fulfill the guilt and sin offering portions of the Law[^1][^2] and thus offer our minds, [without any soft-pedaling of](https://www.biblegateway.com/passage/?search=Romans%201%3A32%2C3%3A20%2C5%3A12%2C6%3A16%2C6%3A21%2C7%3A7%2C8%3A6%2C8%3A13%2CGalatians%206%3A8%3B%201%20Corinthians%2011%3A26&version=NASB) and in fact some emphasis on the gravity of our sins, [liberation](https://www.biblegateway.com/passage/?search=Matthew%2020%3A28%2C%20Mark%2010%3A45%2C%20Galatians%201%3A4%2C%201%20Timothy%202%3A6%2C%20Titus%202%3A14%2C%20Exodus%2012%3A1-34&version=NASB) from guilt toward God and any further obligation to try to make concrete [amends](https://github.com/scottstilson/amends) with Him.
 
